@@ -1,4 +1,4 @@
-# Eczane
+# Eczane Yazılımı
 Eczane Yazılımı | botanik eczane yazılımı | eczane yazılımları | eczane yazılım programları | eczane yazilimlari | eczanem yazılım | eczane bilgisayar yazılımları  | eczane yazılım
 
 # [Eczane Yazılımı](https://eczaneyazilimi.com) : Eczane Yönetimini Kolaylaştıran Çözümler
