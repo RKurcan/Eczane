@@ -12,9 +12,9 @@ Eczane yazılımı, eczanelerin günlük operasyonlarını dijital olarak yönet
 
 ---
 
-## [Eczane Led Tabela](https://regosoft.com.tr/(https://regosoft.com.tr/urun/rego-nobet-akilli-nobetci-eczane-tabelasi))
+## [Eczane Led Tabela](https://regosoft.com.tr/urun/rego-nobet-akilli-nobetci-eczane-tabelasi)
 
-## [Eczane Isı Nem Takip Cihazı](https://regosoft.com.tr/(https://regosoft.com.tr/urun/rego-termo-eczane-isi-nem-takip-cihazi))
+## [Eczane Isı Nem Takip Cihazı](https://regosoft.com.tr/urun/rego-termo-eczane-isi-nem-takip-cihazi)
 
 
 ## Neden Eczane Yazılımı Kullanmalısınız?
