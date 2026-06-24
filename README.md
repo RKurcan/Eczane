@@ -1,16 +1,22 @@
 # Eczane Yazılımı
 Eczane Yazılımı | botanik eczane yazılımı | eczane yazılımları | eczane yazılım programları | eczane yazilimlari | eczanem yazılım | eczane bilgisayar yazılımları  | eczane yazılım
 
-# [Eczane Yazılımı](https://eczaneyazilimi.com) : Eczane Yönetimini Kolaylaştıran Çözümler
+# [Eczane Yazılımı](https://regosoft.com.tr/) : Eczane Yönetimini Kolaylaştıran Çözümler
 
 Eczane yönetimi, stok takibi, hasta bilgileri, reçete yönetimi ve daha birçok işlemi kolaylaştıran **eczane yazılımları**, modern eczanelerin vazgeçilmez bir parçası haline geldi. İster küçük bir botanik eczane ister büyük bir zincir eczane olsun, doğru yazılım çözümleriyle işlerinizi daha verimli hale getirebilirsiniz. İşte eczane yazılımları hakkında bilmeniz gerekenler:
 
 ---
 
-## [Eczane Yazılımı](https://eczaneyazilimi.com) Nedir?
+## [Eczane Yazılımı](https://regosoft.com.tr/) Nedir?
 Eczane yazılımı, eczanelerin günlük operasyonlarını dijital olarak yönetmelerine yardımcı olan yazılımlardır. Bu yazılımlar, stok yönetimi, reçete takibi, hasta kayıtları, finansal işlemler ve raporlama gibi birçok işlevi tek bir platformda birleştirir.
 
 ---
+
+
+## [Eczane Led Tabela]([https://regosoft.com.tr/](https://regosoft.com.tr/urun/rego-nobet-akilli-nobetci-eczane-tabelasi)
+
+## [Eczane Isı Nem Takip Cihazı]([https://regosoft.com.tr/](https://regosoft.com.tr/urun/rego-termo-eczane-isi-nem-takip-cihazi)
+
 
 ## Neden Eczane Yazılımı Kullanmalısınız?
 - **Stok Yönetimi**: İlaç stoklarınızı otomatik olarak takip eder, eksikleri önceden bildirir.
@@ -34,7 +40,7 @@ Eczane yazılımı, eczanelerin günlük operasyonlarını dijital olarak yönet
 ---
 
 ## Eczane Yazılımı Çözümleri
-Eczane yazılımı ihtiyaçlarınız için [eczaneyazilimi.com](https://eczaneyazilimi.com) adresini ziyaret edebilir ve modern çözümlerle tanışabilirsiniz. Eczane yönetimini kolaylaştıran bu platform, işletmenizi bir adım öne taşıyacak özellikler sunar.
+Eczane yazılımı ihtiyaçlarınız için [https://regosoft.com.tr/](https://regosoft.com.tr/) adresini ziyaret edebilir ve modern çözümlerle tanışabilirsiniz. Eczane yönetimini kolaylaştıran bu platform, işletmenizi bir adım öne taşıyacak özellikler sunar.
 
 ---
 
